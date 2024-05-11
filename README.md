@@ -8,7 +8,7 @@ As the world witnesses increasingly devastating wildfires, a recent publication 
 
 Key recommendations include:
 
-•	 **Enhancing building codes and limiting development in fire-prone areas ** 🏗
+•	Enhancing building codes and limiting development in fire-prone areas 🏗
 
 
 •	Implementing prescribed burning, fuel reduction, and forest thinning 🔥
