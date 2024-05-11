@@ -5,7 +5,7 @@
 
 
 As the world witnesses increasingly devastating wildfires, a recent publication in PNAS Nexus by experts Costas E. Synolakis and Georgios Marios Karagiannis offers timely insights into integrating wildfire risk management with sustainable forest land practices.
-
+
 
 
 Key recommendations include:
